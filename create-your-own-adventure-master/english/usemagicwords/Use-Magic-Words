@@ -1,0 +1,3 @@
+You say the magic words that your evil sadistic uncle told you to say whenever you're in this situation. 
+
+The marshmallow begins to get really hot. You look down and realize you're not standing on marshmallow anymore, but on molten lava. It becomes an active volcano, and you get burned to a crisp instantly. What were you doing listening to your evil sadistic uncle anyway?
